@@ -11,3 +11,7 @@ Alexander Slocum of mechanical engineering is working with teams of collaborator
 
 Referance:
 https://serc.carleton.edu/integrate/teaching_materials/energy_sustain/student_materials/creating_electr.html
+
+- acquire area that is legally proper to host such plant.
+- must be close to a road
+- 
